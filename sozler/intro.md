@@ -40,5 +40,5 @@ Her şey iğrençleşti. Haberin var mı? Diye sorsam kim (Arapça evet sesi) ye
 
 #### Verse 2
 Bir yere gitmedim merak etme sadece kirli çamaşırlarım ortaya çıktı başka bir paralel evrene kaçtım. <br>
-Yani burdayım.. Tabi sözde(Orasını karıştırma) yoksa böyle evire çevire şöyle şöyle olurdum. Üstad iyi anlatmış,
+Yani burdayım.. Tabi sözde(Orasını karıştırma) yoksa böyle evire çevire şöyle şöyle olurdum. Üstad iyi anlatmış, <br>
 Ben bunu sokakta söyleyeni gördüm bir baktım TR Server'ından banlanmış?
