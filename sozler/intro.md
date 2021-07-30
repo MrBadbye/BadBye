@@ -5,7 +5,8 @@
 
 Hoşgeldin beşgittin <br>
 Dördünü devlet aldı(Ağla!) <br>
-Zaten mutlu olanların yarısı ballıydı <br>
+Beni sömürgecilik hizmetlerine bağla <br>
+Zaten mutlu olanların yarısı bir şeylere bağlıydı <br>
 
 (Beat başlar)
 
@@ -23,6 +24,12 @@ Biz ne dersek diyelim günün sonunda ekonomi yine aynı b.k, <br>
 Ama bunları söylesek verecekleri bahaneler çok, <br>
 O yüzden susmayı tercih etmeyeceğim, zaten öldüm(ok?) <br>
 #### Nakarat
-Yeter, yeter beter insanları,
-Beterinden de beter katlettiniz barajları,
-Eğitim sistemi çok umrunuzda değil sanırım koyduğumun hayvanları,
+Yeter, yeter beter ettiniz insanları, <br>
+Beterinden de beter katlettiniz barajları, <br>
+Eğitim sistemi çok umrunuzda değil sanırım koyduğumun hayvanları, <br>
+Her şey iğrençleşti. Haberin var mı? Diye sorsam kim evet yerine (Arapça evet sesi) der! Sayamıyorum... <br><br>
+
+Yeter, yeter, yeter katlettiğiniz insanları, <br>
+Beterinden de beter yok ettiğiniz barajları, <br>
+Eğitim sistemi çok umrunuzda değil sanırım koyduğumun hayvanları, <br>
+Her şey iğrençleşti. Haberin var mı? <br>
