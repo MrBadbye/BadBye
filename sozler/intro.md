@@ -25,7 +25,7 @@ Biz ne dersek diyelim günün sonunda ekonomi yine aynı b.k, <br>
 Ama bunları söylesek verecekleri bahaneler çok, <br>
 O yüzden susmayı tercih etmeyeceğim, zaten öldüm(ok?) <br>
 Neden konuşmuyorsunuz sanırım karnınız tok <br>
-Yemezler bunları hadi gel konuşarak hapse gidelim. <br>
+Yemezler bunları hadi gel konuşalım ama ağzını almam gerek(Ağız vergisi). <br>
 
 #### Nakarat
 Yeter, yeter beter ettiniz insanları, <br>
@@ -36,4 +36,9 @@ Her şey iğrençleşti. Haberin var mı? Diye sorsam kim evet yerine (Arapça e
 Yeter, yeter, yeter katlettiğiniz insanları, <br>
 Beterinden de beter yok ettiğiniz barajları, <br>
 Eğitim sistemi çok umrunuzda değil sanırım koyduğumun hayvanları, <br>
-Her şey iğrençleşti. Haberin var mı? Diye sorsam kim (Arapça evet sesi) yerine evet der!
+Her şey iğrençleşti. Haberin var mı? Diye sorsam kim (Arapça evet sesi) yerine evet der! Göremiyorum(göremiyorum, göremiyorum, göremiyorum!)... <br>
+
+#### Verse 2
+Bir yere gitmedim merak etme sadece kirli çamaşırlarım ortaya çıktı başka bir paralel evrene kaçtım. <br>
+Yani burdayım.. Tabi sözde(Orasını karıştırma) yoksa böyle evire çevire şöyle şöyle olurdum. Üstad iyi anlatmış,
+Ben bunu sokakta söyleyeni gördüm bir baktım TR Server'ından banlanmış?
