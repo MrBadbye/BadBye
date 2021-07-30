@@ -21,3 +21,8 @@ Geç, geç şunları. <br><br>
 Amcacım, Avrupa'nın senin çizgili kıyafetini kıskanacak durumu yok, <br>
 Biz ne dersek diyelim günün sonunda ekonomi yine aynı b.k, <br>
 Ama bunları söylesek verecekleri bahaneler çok, <br>
+O yüzden susmayı tercih etmeyeceğim, zaten öldüm(ok?) <br>
+#### Nakarat
+Yeter, yeter beter insanları,
+Beterinden de beter katlettiniz barajları,
+Eğitim sistemi çok umrunuzda değil sanırım koyduğumun hayvanları,
