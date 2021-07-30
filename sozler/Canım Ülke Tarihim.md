@@ -34,7 +34,7 @@ Eğitim sistemi çok umrunuzda değil sanırım koyduğumun hayvanları, <br>
 Her şey iğrençleşti. Haberin var mı? Diye sorsam kim evet yerine (Arapça evet sesi) der! Sayamıyorum(sayamıyorum, sayamıyorum!)... <br><br>
 
 Yeter, yeter, yeter katlettiğiniz insanları, <br>
-Beterinden de beter yok ettiğiniz barajları, <br>
+Beterinden de beter yok ettiğiniz doğruları, <br>
 Eğitim sistemi çok umrunuzda değil sanırım koyduğumun hayvanları, <br>
 Her şey iğrençleşti. Haberin var mı? Diye sorsam kim (Arapça evet sesi) yerine evet der! Göremiyorum(göremiyorum, göremiyorum, göremiyorum!)... <br>
 
@@ -67,7 +67,7 @@ Eğitim sistemi çok umrunuzda değil sanırım koyduğumun hayvanları, <br>
 Her şey iğrençleşti. Haberin var mı? Diye sorsam kim evet yerine (Arapça evet sesi) der! Sayamıyorum(sayamıyorum, sayamıyorum!)... <br><br>
 
 Yeter, yeter, yeter katlettiğiniz insanları, <br>
-Beterinden de beter yok ettiğiniz barajları, <br>
+Beterinden de beter yok ettiğiniz doğruları, <br>
 Eğitim sistemi çok umrunuzda değil sanırım koyduğumun hayvanları, <br>
 Her şey iğrençleşti. Haberin var mı? Diye sorsam kim (Arapça evet sesi) yerine evet der! Göremiyorum(göremiyorum, göremiyorum, göremiyorum!)... <br>
 
