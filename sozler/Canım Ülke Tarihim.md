@@ -56,4 +56,19 @@ Ben de isterdim siyaset konuşmamayı, <br>
 14 yaşında ekonomik bu kadar bilgiye sahip olmamayı, <br>
 Bunları bırak öğrenmeyi umursamamayı, <br>
 Malesef yapacağım bir şey yok, özür dilerim <br>
-Çevrendeki insanların okadar kaba 
+Çevrendeki insanların o kadar kaba olmamasını dilerim. <br>
+
+(Beat Switch)
+
+#### Nakarat
+Yeter, yeter beter ettiniz insanları, <br>
+Beterinden de beter katlettiniz barajları, <br>
+Eğitim sistemi çok umrunuzda değil sanırım koyduğumun hayvanları, <br>
+Her şey iğrençleşti. Haberin var mı? Diye sorsam kim evet yerine (Arapça evet sesi) der! Sayamıyorum(sayamıyorum, sayamıyorum!)... <br><br>
+
+Yeter, yeter, yeter katlettiğiniz insanları, <br>
+Beterinden de beter yok ettiğiniz barajları, <br>
+Eğitim sistemi çok umrunuzda değil sanırım koyduğumun hayvanları, <br>
+Her şey iğrençleşti. Haberin var mı? Diye sorsam kim (Arapça evet sesi) yerine evet der! Göremiyorum(göremiyorum, göremiyorum, göremiyorum!)... <br>
+
+*(74 Satırda Devr-i Alem)*
