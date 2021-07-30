@@ -1,4 +1,4 @@
-## Intro
+## Canım Ülke Tarihim
 
 ### Sözler: MrBadBye
 ### Müzik: Beatcoin(Düzenlendi)
@@ -8,7 +8,7 @@ Dördünü devlet aldı(Ağla!) <br>
 Beni sömürgecilik hizmetlerine bağla <br>
 Zaten mutlu olanların yarısı bir şeylere bağlıydı <br>
 
-(Beat başlar)
+(Beat Starting)
 
 #### Verse 1
 Birkerebirkerebirkereyi kikiri karayı kes! <br>
@@ -42,8 +42,18 @@ Her şey iğrençleşti. Haberin var mı? Diye sorsam kim (Arapça evet sesi) ye
 Bir yere gitmedim merak etme sadece kirli çamaşırlarım ortaya çıktı başka bir paralel evrene kaçtım. <br>
 Yani burdayım.. Tabi sözde(Orasını karıştırma) yoksa böyle evire çevire şöyle şöyle olurdum. Üstad iyi anlatmış, <br>
 Ben bunu sokakta söyleyeni gördüm bir baktım TR Server'ından banlanmış? <br>
-Hocam kadın polise "Bana zorluk çıkartma!" diyor, emin misiniz sizce cidden ülkemiz iyi bir yere doğru mu gidiyor? <br>
+Hocam kadın polise "Bana zorluk çıkartma!" diyor, emin misiniz sizce cidden ülkemiz iyi bir yere doğru mu gidiyor? <br><br>
 
 Bunları anlat anlat bitmez, bak ben öldüm gittim, ölmeseydim zaten bitmiştim(değil mi?) <br>
 Bir börek bile ülkeyi daha iyi yönetirdi(Nasıl ya) en azından kafasına göre terörist ilan etmezdi, <br>
 Her erkeğe tacizci demezdi, ya da yalan yanlış haber yayınlamazdı, susmayı tercih ederdi. <br>
+Öte yandan 67 yaşında taraflılık kusan bir boomer'a ülkeyi versen bunların hepsini yapardı(Bir dakika, zaten yaptı). <br><br>
+
+
+(Beat Switch)
+
+Ben de isterdim siyaset konuşmamayı, <br>
+14 yaşında ekonomik bu kadar bilgiye sahip olmamayı, <br>
+Bunları bırak öğrenmeyi umursamamayı, <br>
+Malesef yapacağım bir şey yok, özür dilerim <br>
+Çevrendeki insanların okadar kaba 
