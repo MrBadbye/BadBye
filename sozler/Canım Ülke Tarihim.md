@@ -43,5 +43,7 @@ Bir yere gitmedim merak etme sadece kirli çamaşırlarım ortaya çıktı başk
 Yani burdayım.. Tabi sözde(Orasını karıştırma) yoksa böyle evire çevire şöyle şöyle olurdum. Üstad iyi anlatmış, <br>
 Ben bunu sokakta söyleyeni gördüm bir baktım TR Server'ından banlanmış? <br>
 Hocam kadın polise "Bana zorluk çıkartma!" diyor, emin misiniz sizce cidden ülkemiz iyi bir yere doğru mu gidiyor? <br>
+
 Bunları anlat anlat bitmez, bak ben öldüm gittim, ölmeseydim zaten bitmiştim(değil mi?) <br>
-Bir börek bile ülkeyi daha iyi yönetirdi(Nasıl ya) en azından kafasına göre terörist ilan etmezdi, her erkeğe tacizci demezdi, susmayı tercih ederdi. <br>
+Bir börek bile ülkeyi daha iyi yönetirdi(Nasıl ya) en azından kafasına göre terörist ilan etmezdi, <br>
+Her erkeğe tacizci demezdi, ya da yalan yanlış haber yayınlamazdı, susmayı tercih ederdi. <br>
